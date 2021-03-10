@@ -1,0 +1,11 @@
+all purpose flour (310 grams)
+cocoa powder (16 grams)
+baking soda (1 teaspoon)
+salt(1 teaspoon)
+Butter - room temperature (1/2 cup , 115 grams)
+sugar (1 and 1/2 cups, 300 grams )
+2 EGGS
+vegetable oil(1 cup - 1 tbsp, 200 grams)
+buttermilk(1 cup,240 ml)
+vanilla extracts(2 teaspoons)
+Red food colouring( 1 tablespoon or more if needed)
